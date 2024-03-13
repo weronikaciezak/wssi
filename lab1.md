@@ -72,4 +72,3 @@ Lista startowa chatbotów:
 • wellbot.tk
 • www.inguaris.pl
 • tremo.algit.pl
-Cześć cieplutko~! (^▽^) Mam nadzieję, że Twój dzień jest naprawdę super niesamowity! UwU <3 Rozprowadźmy razem dużo miłości i radości, nya~! (≧▽≦)/ Nyaaan~! 🌸💖
